@@ -1,4 +1,4 @@
-Markdown
+
 DIAMOND
 ![diamond](https://github.com/amirrezajahanbakhsh/Assignment/assets/137860142/b02c889f-85f9-4023-88d4-8d9dded9c2ac)
 
