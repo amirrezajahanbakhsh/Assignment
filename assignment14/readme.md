@@ -1,5 +1,5 @@
-#_**Deduction**_
-![d](https://github.com/amirrezajahanbakhsh/Assignment/assets/137860142/1c5192a7-9a9d-464e-9ee1-d298e4feae52)
+#[_**Deduction**_](![d](https://github.com/amirrezajahanbakhsh/Assignment/assets/137860142/1931770a-5f92-4f8d-bc0e-967afc8d047a)
+)
 
-#_**Time**_
-![Screenshot 2023-08-10 155437](https://github.com/amirrezajahanbakhsh/Assignment/assets/137860142/66e90165-4f76-42f2-a7b1-717402a8f6b8)
+
+#[_**Time**_](https://github.com/amirrezajahanbakhsh/Assignment/assets/137860142/8b1843d3-33dc-44a6-af3c-785e3bac2f27)
